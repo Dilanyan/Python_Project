@@ -1,0 +1,2 @@
+Barev dzez
+Bari gisher
